@@ -1,0 +1,1 @@
+# genshin.githup.io
